@@ -17,5 +17,5 @@ I'm an aspiring software developer transitioning from a pastry cook career at Di
 - Land my first role in tech
 
 ## 🍱 Let's Connect!
-- [LinkedIn]www.linkedin.com/in/victoria-noblitt-ba9a88371
+- [LinkedIn]www.linkedin.com/in/victoriassickbutprofessionalurl
   
